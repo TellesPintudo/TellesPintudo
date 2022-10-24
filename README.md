@@ -1,0 +1,21 @@
+### João Da Borracharia🤠
+-23 yers de idade
+-Vegano
+-Dono de uma Churrascaria 
+-Alergico a proteina
+-NÃO USO BOMBA 
+-Amo a natureza
+-Apoio o desmatamento
+-Solteiro
+-Adoro uma baladinha 
+-Chama no problema BB
+-Fisicultuista profissional
+-60 kilos
+-Bolsonaro 13
+-Curso Medicina na FAG 
+-Veterinaio por amor 
+-Não gosto de animais
+-Amo carros potentes
+-Dono de um corsa 1998
+-Contra o porte de armas 
+-Tenho uma glock destravada
